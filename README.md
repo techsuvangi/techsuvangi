@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @techsuvangi
 - 👀 I’m interested in Data/Business Analysis Jobs
-- 🎓 I’ve currently completed my Masters in Applied Economics from CHRIST (Deemed to be University)
+- 🎓 I’ve recently completed my Masters in Applied Economics from CHRIST (Deemed to be University)
 - 📫 How to reach me suvangisaha1999@gmail.com
 - 😄 Pronouns: She/Her
 
